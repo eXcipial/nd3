@@ -13,5 +13,7 @@
 >```
 > „Sodra“ penktadienį skelbia liepos mėnesio datas, kada gyventojams laukti pensijos, taip pat nedarbo, ligos ir kitų išmokų. Kas mėnesį datos gali šiek tiek pasikeisti. Išmokų mokėjimas Vaiko priežiūros išmoką planuojama mokėti liepos 15 dieną, vaiko išlaikymo – 25 dieną, nedarbo – 19 dieną. Tuo metu kitoms išmokoms paliekami laiko intervalai: ilgalaikio darbo – per 10 darbo dienų (d. d.) nuo sprendimo priėmimo dienos, ligos ir motinystės – per 17 d. d. nuo visų dokumentų ir duomenų pateikimo, tėvystės – per 5 d. d. nuo tėvystės atostogų pabaigos, socialiniame tinkle skelbia „Sodra“.
 >```
-
-
+# ***
+>```
+> Europos Sąjungos (ES) lyderiai susitarė antrajai kadencijai Europos Komisijos pirmininkės poste nominuoti vokietę Ursulą von der Leyen. Be to, jie nusprendė, kad buvęs Portugalijos premjeras Antonio Kosta turėtų tapti Europos Vadovų Tarybos pirmininku, o Estijos premjerė Kaja Kallas – naująja ES užsienio politikos įgaliotine. Didžiosioms Europos partijų šeimoms savaitės viduryje pasiekus atitinkamą susitarimą, jau prieš prasidedant viršūnių susitikimui beveik nebuvo abejonių, kad aukščiausi postai atiteks U. von der Leyen, socialdemokratui A. Costai ir liberalei K. Kallas. Vadovavimas Europos Komisijai laikomas svarbiausia pozicija, kurią reikia užimti po Europos Parlamento rinkimų. Jos vadovui pavaldūs apie 32 000 darbuotojų, kurie, be kita ko, teikia pasiūlymus dėl naujų ES įstatymų ir stebi, kaip laikomasi Europos sutarčių.
+>```
