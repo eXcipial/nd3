@@ -7,3 +7,13 @@
 >```
 
 
+# ***
+
+>
+>```
+> JAV politikos analitikai pareiškė susirūpinimą dėl prasto prezidento Joe Bideno pasirodymo per pirmuosius debatus su Respublikonų partijos kandidatu Donaldu Trumpu iki lapkritį įvyksiančių rinkimų, kuriuos laimėti abiejų kandidatų galimybės yra beveik lygios. 14 Debatuose, kuriuose ant kortos buvo pastatyta labai daug, pranašumą apylygėje rinkiminėje kovoje dėl Baltųjų Rūmų įgyti siekiantys J. Bidenas ir D. Trumpas negailėjo vienas kitam ugningų replikų, kandžiai kritikuodami vienas kito darbą ir elgesį. D. Trumpas triukšmingai užsipuolė savo varžovą, siekdamas jį parodyti nevykėliu tiek sprendžiant ekonomikos klausimus, tiek pasaulinėje arenoje, tuo tarpu J. Bidenas atsikirsdamas mikčiojo, kalbėjo tyliai ir savo kalboje keletą kartų suklupo.
+>```
+
+
+
+
